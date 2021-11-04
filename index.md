@@ -1,4 +1,4 @@
-**If you feel like you may harm yourself, please, please call a crisis hotline. They're free, confidential, and 24/7:**
+**Если вы чувствуете, что вот-вот навредите себе - пожалуйста, позвоните на горячую линию одной из служб психологической поддержки. Они бесплатны, анонимны и круглосуточно доступны.**
 
 **US:** [National Suicide Prevention Lifeline](https://suicidepreventionlifeline.org) вЂ“ 1-800-273-8255    
 **US:** [The Trevor Project (for LGBTQ youth)](https://www.thetrevorproject.org) вЂ“ 1-866-488-7386    
